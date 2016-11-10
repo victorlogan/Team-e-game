@@ -1,3 +1,9 @@
 # Team-e-game
-I like the game. we should name it adventures of duo man or otaku run,
+I like the game name of will be 
+
+
+
+LEG IT!!!!!!!
+
+
 Hey we are like real coders!!
